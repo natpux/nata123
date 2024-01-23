@@ -1,8 +1,0 @@
-#'nbnbvnbvnvbn'
-#'vbvcbcvbcvbcvbcvcvbvbc'
-#hkhkhlkhlhfdsffdfщгшешешешешешгегегш
-def45654645464343
-
-#ljkljdfipioidsfn
-#hjhkhjhjhараоаораораеа
-123234878787900000000000000000000000000000000000000
